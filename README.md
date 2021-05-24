@@ -1,2 +1,1 @@
-# LB
-[ PRIVATE!!! ] - Personal Use
+# [ PRIVATE!!! ] - Personal Use
